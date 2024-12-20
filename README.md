@@ -6,4 +6,4 @@ Always open to mentorship opportunities or advice on starting an IT career.
 
 Feel free to connect with me on GitHub or drop me a message via email. 📫
   
-I also enjoy playing games like *Factorio*, *Minecraft*, *OpenTTD*, and *Valheim* on rare occasions.
+I also enjoy playing games like *Factorio: Space Age*, *OpenTTD*, and *Valheim* on rare occasions.
