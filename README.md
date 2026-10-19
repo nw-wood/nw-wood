@@ -1,7 +1,7 @@
-## Howdy 🤠
+## \/W\/W\/W\/\___/\/\/WWW!! Hey there space cow girl! 🤠
 
-Welcome to my GitHub profile! I'm Wood, an aspiring IT professional with a foundation in Rust and experience across multiple programming languages.
+Welcome to my GitHub profile! I'm Wood. As in ___/\/W\/W\/W\/\___/\/\/WWWoooooooooooo(d)!! 
 
-Feel free to connect with me on GitHub or drop me a message via email. 📫
+mmmmmmm@mailbox.org 📫
   
-I also enjoy playing games like *Factorio: Space Age*, *OpenTTD*, and *Valheim* on rare occasions.
+I also hate video games, television, jerking off, and all forms of entertainment that isn't aggravating the medical sciences division for free in my spare time.
