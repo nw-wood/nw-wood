@@ -6,7 +6,7 @@ nathanyelw@gmail.com 📫
 
 https://viewgrid.tv/multi-stream?c=yt:k8pmfIqebZk,yt:0jXTBAGv9ZQ,yt:YFlYLeDPmGQ&s=7gc4kiex
   
-I also hate video games, television, jerking off, social media, and all forms of entertainment that isn't aggravating the medical sciences division for free in my spare time (and the rest of it too).
+I also hate video games, television, jerking off, social media, and all forms of entertainment that isn't *ksshzzst* the medical sciences division for free in my spare time (and the rest of it too).
 
 I eat for free, but I can never sleep. I am a living breathing insult to psycho-acoustic-anal-y-cyst systems world wide. 
 
